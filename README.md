@@ -1,3 +1,3 @@
 # belajar-kolaborasi
 
-hai 
+hai, kenalin nama aku Moh Annas Shobari
